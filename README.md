@@ -1,3 +1,2 @@
 ﻿# my_first_portfolio_Luqman_CBS24071009
-
-![Uploading Portfolio_Exercise1.png…]()
+ 
